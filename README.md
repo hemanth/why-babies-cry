@@ -11,7 +11,7 @@ P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/RE
 * Fever.
 * 💩.
 * Pee.
-* Boby pain.
+* Body pain.
 * Gas. 
 * Acidity. 
 * Gasidity.
