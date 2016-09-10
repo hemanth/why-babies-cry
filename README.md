@@ -22,3 +22,4 @@ P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/RE
 * Lonely. 😟
 * Uncomfy. 💺
 * Can’t walk where they’d like to. 🚷
+* Scared :fearful:
