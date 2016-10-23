@@ -18,7 +18,7 @@ P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/RE
 * Teething
 * Strangers/Crowd.:boy: :girl: :older_woman: :older_man:  
 * Noise. :mega: 
-* Want cuddling. :open_hands: :family:
+* Want cuddles. :open_hands: :family:
 * Lonely. 😟
 * Uncomfy. 💺
 * Can’t walk where they’d like to. 🚷
