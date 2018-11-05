@@ -3,9 +3,9 @@
 
 P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/README.md) your reason(s).
 
-* Hungry 🍼
-* Sleepy 💤
-* Bored 😐
+* Hungry. 🍼
+* Sleepy. 💤
+* Bored. 😐
 * Weary.
 * Headache.
 * Fever.
@@ -15,12 +15,13 @@ P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/RE
 * Gas. 
 * Acidity. 
 * Gasidity.
-* Teething
-* Strangers/Crowd.:boy: :girl: :older_woman: :older_man:  
+* Teething.
+* Strangers/Crowd. :boy: :girl: :older_woman: :older_man:  
 * Noise. :mega: 
 * Want cuddles. :open_hands: :family:
 * Lonely. 😟
 * Uncomfy. 💺
 * Can’t walk where they’d like to. 🚷
-* Scared :fearful:
-* Bad Dream
+* Scared. :fearful:
+* Bad Dream.
+* Existential dread.
