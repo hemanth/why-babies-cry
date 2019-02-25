@@ -25,3 +25,7 @@ P.S: Feel free to [add](https://github.com/hemanth/why-babies-cry/edit/master/RE
 * Scared. :fearful:
 * Bad Dream.
 * Existential dread.
+* Can't get a hold of a certain object.
+* Protest against bathing and getting water in their eyes. 👀
+* Aren't allowed to eat something that babies or people in general shouldn't eat.
+
